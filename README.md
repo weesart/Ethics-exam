@@ -1,0 +1,2 @@
+# Ethics-exam
+Info graphics 
